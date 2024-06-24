@@ -1,1 +1,1 @@
-# Community-Engagement-2024
+The Community Engagement Report details a program aimed at raising awareness and promoting voter education among marginalized communities. Through interactive activities, participants learned about the significance of voting, improved their civic engagement skills, and helped enhance electoral participation. The initiative emphasized the importance of individual voices in shaping democratic outcomes.
